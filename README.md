@@ -1,0 +1,2 @@
+# premium-seam-fold-tin-001-tin-seam-folding-lock-joint
+Tired of losing track of your tin seam measurements, lock joint tolerances, and material scraps mid-project? This Notion template turns your craft chaos into a repeatable workshop system.  The Tin Seam Folding &amp; Lock Joint Craft Workshop template organizes every step of your metalworking process—from material inventory to seam folding sequences and
